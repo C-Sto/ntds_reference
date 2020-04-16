@@ -1,0 +1,1 @@
+2016 with 10 password history. User camtest123 has had password changed to various iterations of `P@ssw0rd1`
